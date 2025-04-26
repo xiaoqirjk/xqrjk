@@ -13,3 +13,4 @@
   
 **【本页更新日期🖥2025-4-27】**
 ![老司机破解软件库](https://qqq.gtimg.cn/music/photo_new/T053XD00000vTU3I44nH1C.png "老司机破解软件库")
+<meta name="google-site-verification" content="dWjgqiC0wDIs2EnanztRihQhP8wXywEV0Wwi-e7lm2I" />
